@@ -1,2 +1,1 @@
-# JAVA
-JAVA学习
+# Thank you to view
